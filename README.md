@@ -1,0 +1,1 @@
+# postmarketos-vendor-samsung-a7y18lte
